@@ -10,7 +10,7 @@ He created/developed one of the best video games genre called *souls games*
 
 He developed Unreal engine 
 
-![Tim Sweeny](https://static.toiimg.com/thumb/msid-129589674,imgsize-1309012,width-400,resizemode-4/meet-tim-sweeney-the-epic-games-billionaire-who-quietly-bought-50000-acres-of-forest-to-save-it-from-developers.jpg)
+![Tim Sweeny](https://gameriv.com/wp-content/uploads/2026/03/Tim-Sweeney-Reponds-to-the-terminal-ill-dev.jpg)
 
 ## Shigeru Miyamoto:
 
