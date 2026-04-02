@@ -2,7 +2,7 @@
 
 ## Hidetaka Miyazaki:
 
-He created/developed one of the best if not *THE BEST* video games genre called *souls games*
+He created/developed one of the best video games genre called *souls games*
 
 ![Hidetaka Miyazaki](https://static.wikia.nocookie.net/darksouls/images/e/eb/Hidetaka_Miyazaki_-_01.jpg/revision/latest/scale-to-width-down/1000?cb=20160407055046)
 
